@@ -1,2 +1,2 @@
 # god-of-bitcoin
-Spending bitcoin like im in the uk
+Spending bitcoin like im the inventor.
